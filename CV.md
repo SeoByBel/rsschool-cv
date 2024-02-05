@@ -18,7 +18,7 @@ As a motivated and enthusiastic individual, I am embarking on a journey to becom
 - [Link to GitHub Profile](https://github.com/SeoByBel)
 
 ## Education
-- Gomel Goverment College of Arts
+- N.F Sokolovsky Gomel Goverment College of Arts
 - MBA of Communications in Conflict (Courses)
 - San Diego University for Integrative Studies - Certificate in Communication
 
