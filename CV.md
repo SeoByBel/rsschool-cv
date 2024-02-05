@@ -4,6 +4,7 @@
 
 ## Contact Information
 - Email: sviataslaukorzun@gmail.com
+- Work phone: 619 775 0200
 
 ## Summary
 As a motivated and enthusiastic individual, I am embarking on a journey to become a skilled developer. My goal is to contribute actively to the world of technology, showcasing my passion for learning and my ability to adapt quickly. I understand that being a Junior Developer involves continuous learning, and I am excited about the challenges that come with it. While I may lack professional experience, I am eager to leverage my potential and dedication to become a valuable asset to any development team.
